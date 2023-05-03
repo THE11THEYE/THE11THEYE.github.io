@@ -1,2 +1,0 @@
-# THE11THEYE.github.io
-FREE YOUR MIND
